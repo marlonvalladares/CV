@@ -1,4 +1,4 @@
 # CV
 Curriculum Vitae actualizado 
-Marlon Valladares}
+Marlon Valladares
 2do B Matutino
